@@ -6,6 +6,13 @@
 
 <h4 align="center"> Relevant Work Experience</h4>
 
+**Freelance Illustrator and Cartoonist**, Self-Employed, Seattle, WA  
+May 2013 - present
+
+* Work to constructively and creatively meet clients’ needs by conceptualizing, drawing, and finalizing images for  digital, product, and print publication (view full artist resume on website)
+* Create comics and illustrations for various publications, including the Seattle Weekly and Taproot Magazine as well as numerous anthologies, product lines, and self-published work
+* In-depth knowledge of Adobe Creative Suite, specifically Adobe Photoshop and InDesign
+
 
 **Event Services Coordinator and Bartender**, Foodz Catering, Seattle, WA  
 Sept. 2017 - Jan 2018
@@ -13,14 +20,6 @@ Sept. 2017 - Jan 2018
 * Provided an excellent level of customer service to ensure utmost client satisfaction throughout their entire time working with Foodz
 * Assisted clients throughout the entire event planning process; coordinated events ranging in size from 25-350
 * Demonstrated on-the-fly problem solving on site at events both as an ESC and as a bartender
-
-
-**Freelance Illustrator and Cartoonist**, Self-Employed, Seattle, WA  
-May 2013 - present
-
-* Work to constructively and creatively meet clients’ needs by conceptualizing, drawing, and finalizing images for  digital, product, and print publication (view full artist resume on website)
-* Create comics and illustrations for various publications, including the Seattle Weekly and Taproot Magazine as well as numerous anthologies, product lines, and self-published work
-* In-depth knowledge of Adobe Creative Suite, specifically Adobe Photoshop and InDesign
 
 
 **Nature Counselor and Camper Leader Counselor** , Hidden Valley Camp, Granite Falls, WA  

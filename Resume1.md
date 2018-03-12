@@ -1,7 +1,7 @@
 # Dupille_Resume
 
 <h2 align="center"> natalie kay dupille </h1>
-<img src= "https://78.media.tumblr.com/ca552fe3f96e796fd150c766532961ad/tumblr_p5hzlx19lU1tjh0v8o1_540.png" alt="woman with wildly curly hair" align="center">
+<img align="center" src= "https://78.media.tumblr.com/ca552fe3f96e796fd150c766532961ad/tumblr_p5hzlx19lU1tjh0v8o1_540.png" alt="woman with wildly curly hair">
 
 <h4 align="center"> Relevant Work Experience</h4>
 

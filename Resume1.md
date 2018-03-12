@@ -41,10 +41,15 @@ Aug 2013 - Mar 2014
 
 <h4 align="center"> Additional Experience</h4>
 
+**Fellow**, Communicating Science & Art Program, Pacific Science Center, Seattle, WA  
+Sept 2017
+
+* Worked collaboratively with a UW Earth and Space Sciences professor to create new work that communicates scientific research through art
+
 **Mentor**, Seattle Girls School, Seattle, WA  
 Sept 2016 - June 2017  
 
-* Mentor a current 6th grade student at SGS; participate in monthly mentor events and one-on-one relationship building
+* Mentored a 6th grade student at SGS; participate in monthly mentor events and one-on-one relationship building
 
 **Event Coordinator**, SherpaCares, Seattle, WA  
 Dec. 2015 - June 2016

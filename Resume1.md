@@ -56,11 +56,6 @@ Dec. 2015 - June 2016
 
 * Organized multiple fundraiser events of different scales; responsible for all levels of event coordination and follow-up
 
-**Development Intern**, Washington Bus, Seattle, WA  
-June - Aug 2013
-
-* Provided support with fundraising events, grant proposals and donor correspondence
-* Conducted donor, grant, and sponsorship research
 
 <h4 align="center">Education</h4>
 

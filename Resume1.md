@@ -16,7 +16,7 @@ May 2013 - present
 **Visual Arts Instructor**, Water World Program at Centrum Institute, Port Townsend, WA  
 Spring 2017, 2018
 
-* Designed and taught curriculum to classes of 15-30 fifth and sixth grade students to develop knowledge of natural surroundings through hands-on exploration, reflection, and creative activities
+* Designed and taught visual arts curriculum to classes of 15-30 fifth and sixth grade students to develop knowledge of natural surroundings through hands-on exploration, reflection, and creative activities
 * Oversaw every student's culminating project (hand-bound artist book) through completion 
 * Encouraged and demonstrated environmental stewardship and awareness to both students and chaperones, ensured safety and enjoyment of the entire group throughout the duration of the program
 

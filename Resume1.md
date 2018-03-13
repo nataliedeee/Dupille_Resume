@@ -37,12 +37,12 @@ Aug 2013 - Mar 2014
 
 <h4 align="center"> Additional Experience</h4>
 
-**Artist in Residence**, Pacific Science Center, Seattle WA
-<br />March 2018 - June 2018 _(in progress)_
+**Artist in Residence**, Pacific Science Center, Seattle WA  
+March 2018 - June 2018 _(in progress)_
 * Work with PSC Portal to the Public and Exhibitions to develop an interactive space for working artists and guests to learn, create and interact
 
-**Fellow**, Communicating Science & Art Program, Pacific Science Center, Seattle, WA 
-<br />Sept 2017  
+**Fellow**, Communicating Science & Art Program, Pacific Science Center, Seattle, WA  
+Sept 2017  
 
 * Worked collaboratively with a UW Earth and Space Sciences professor to create new work that communicates scientific research through art
 
@@ -59,7 +59,8 @@ Dec. 2015 - June 2016
 
 <h4 align="center">Education</h4>
 
-**Colorado College**, Colorado Springs, CO, Bachelor of Arts, Feminist and Gender Studies, Major GPA: 3.8, Class of 2013
+**Colorado College**, Colorado Springs, CO, Bachelor of Arts, Feminist and Gender Studies, Major GPA: 3.8  
+Class of 2013
 
 <h4 align="center">Skills and Certifications</h4>
 

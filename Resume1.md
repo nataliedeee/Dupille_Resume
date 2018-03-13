@@ -69,3 +69,5 @@ Beginning HTML, CSS, and Wordpress skills
 Fluent Dutch; Conversational Spanish and Nepali
 
 <h6 align="center"> nataliedeee@gmail.com • 206.267.8516 • www.nataliedupille.com </h6>
+
+<!-- note - I learned the proper Markup syntax for constructing headlines, but wanted to give my resume headings center alignment. I researched GitHub's help forums, and found that by using HTML syntax in GitHub's flavor markdown, I could add my headings and header image as center aligned and not just as left aligned. Adding these elements was important to me even though they don't follow traditional Markdown syntax. -->

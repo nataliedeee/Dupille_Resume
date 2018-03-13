@@ -47,12 +47,12 @@ Aug 2013 - Mar 2014
 * Worked collaboratively with a UW Earth and Space Sciences professor to create new work that communicates scientific research through art
 
 **Mentor**, Seattle Girls School, Seattle, WA  
-<br />Sept 2016 - June 2017 
+Sept 2016 - June 2017 
 
 * Mentored a 6th grade student at SGS; participate in monthly mentor events and one-on-one relationship building
 
 **Event Coordinator**, SherpaCares, Seattle, WA  
-<br />Dec. 2015 - June 2016
+Dec. 2015 - June 2016
 
 * Organized multiple fundraiser events of different scales; responsible for all levels of event coordination and follow-up
 

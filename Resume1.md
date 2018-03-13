@@ -13,6 +13,12 @@ May 2013 - present
 * Create comics and illustrations for various publications, including the Seattle Weekly and Taproot Magazine as well as numerous anthologies, product lines, and self-published work
 * In-depth knowledge of Adobe Creative Suite, specifically Adobe Photoshop and InDesign
 
+**Visual Arts Instructor** , Centrum, Port Townsend, WA  
+Spring 2017, 2018
+
+* Designed and taught curriculum to classes of 15-25 fifth and sixth grade students to develop knowledge of natural surroundings through hands-on exploration, reflection, and creative activities
+* Oversaw every student's culminating project (hand-bound artist book) through completion 
+* Encouraged and demonstrated environmental stewardship and awareness to both students and chaperones, ensured safety and enjoyment of the entire group throughout the duration of the program
 
 **Event Services Coordinator and Bartender**, Foodz Catering, Seattle, WA  
 Sept. 2017 - Jan 2018
@@ -20,15 +26,6 @@ Sept. 2017 - Jan 2018
 * Provided an excellent level of customer service to ensure utmost client satisfaction throughout their entire time working with Foodz
 * Assisted clients throughout the entire event planning process; coordinated events ranging in size from 25-350
 * Demonstrated on-the-fly problem solving on site at events both as an ESC and as a bartender
-
-
-**Nature Counselor and Camper Leader Counselor** , Hidden Valley Camp, Granite Falls, WA  
-June-Aug of 2010-11, 2015-16
-
-
-* Designed and taught curriculum to groups of seven to 14 campers, ages seven through 17, to develop knowledge of natural surroundings through hands-on exploration, reflection, and creative activities
-* Encouraged and demonstrated environmental stewardship and awareness to both campers and counselors, trained counselors in responsible outdoorsmanship, ensured safety and enjoyment of the entire group
-* As Camper Leader Counselor, mentored high school juniors and seniors in youth leadership training program
 
 **Marketing & Design Assistant**, Pratt Fine Arts Center, Seattle, WA  
 Aug 2013 - Mar 2014

@@ -27,12 +27,11 @@ Sept. 2017 - Jan 2018
 * Assisted clients throughout the entire event planning process; coordinated events ranging in size from 25-350
 * Demonstrated on-the-fly problem solving on site at events both as an ESC and as a bartender
 
-**Marketing & Design Assistant**, Pratt Fine Arts Center, Seattle, WA  
-Aug 2013 - Mar 2014
-
-* Responded promptly to requests from media, press and patrons
-* Carried out various graphic design projects, including signage, press kits, and brochures
-* Wrote and edited copy for Pratt blog and other social media interfaces
+**Pre-K Instructional Assistant**, Westside School, Seattle, WA  
+Sept. 2015 - June 2016
+* Assisted lead teacher in all aspects of classroom management
+* Maintained a safe, encouraging, and healthy environment for Pre-K children
+* Planned and executed innovative projects and lessons both in relation to current month’s curriculum and in regards to socially conscious curriculum, such as family, race, and gender diversity.
 
 
 <h4 align="center"> Additional Experience</h4>

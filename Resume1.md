@@ -13,7 +13,7 @@ May 2013 - present
 * Create comics and illustrations for various publications, including the Seattle Weekly and Taproot Magazine as well as numerous anthologies, product lines, and self-published work
 * In-depth knowledge of Adobe Creative Suite, specifically Adobe Photoshop and InDesign
 
-**Visual Arts Instructor** , Centrum, Port Townsend, WA  
+**Visual Arts Instructor**, Water World Program at Centrum Institute, Port Townsend, WA  
 Spring 2017, 2018
 
 * Designed and taught curriculum to classes of 15-25 fifth and sixth grade students to develop knowledge of natural surroundings through hands-on exploration, reflection, and creative activities

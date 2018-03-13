@@ -67,4 +67,4 @@ Proficient in MS Office Suite & Adobe Creative Suite
 Beginning HTML, CSS, and Wordpress skills  
 Fluent Dutch; Conversational Spanish and Nepali
 
-<h6 align="center"> nataliedeee@gmail.com • 206.267.8516 • www.nataliedupille.com </p>
+<h6 align="center"> nataliedeee@gmail.com • 206.267.8516 • www.nataliedupille.com </h6>
